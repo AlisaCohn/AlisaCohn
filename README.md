@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AlisaCohn
 - 👀 I’m interested in weight training and all things fitness; using ChatGPT for business; leadership; startups
-- 🌱 I’m currently learning how to use ChatGPT for business
+- 🌱 I’m currently learning how to use AI for business
 - 💞️ I’m looking to collaborate on writing articles
 - 📫 How to reach me Alisa@AlisaCohn.com
 
